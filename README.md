@@ -7,8 +7,8 @@
 
 [![Twitter](https://seeklogo.com/images/T/twitter-logo-660CF921CB-seeklogo.com.png)](https://twitter.com/hittheroadbed)
 
-[![Instagram](https://seeklogo.com/images/I/instagram-logo-B12DD504FE-seeklogo.com.png)]([https://twitter.com/hittheroadbed](https://instagram.com/hittheroadbed))
+[![Instagram](https://seeklogo.com/images/I/instagram-logo-B12DD504FE-seeklogo.com.png)](https://instagram.com/hittheroadbed)
 
-[![LinkedIn](https://seeklogo.com/images/L/linkedin-logo-F84AF05CFC-seeklogo.com.png)]([https://twitter.com/hittheroadbed](https://www.linkedin.com/in/bedirhanbayrak/))
+[![LinkedIn](https://seeklogo.com/images/L/linkedin-logo-F84AF05CFC-seeklogo.com.png)](https://www.linkedin.com/in/bedirhanbayrak)
       
   [![Mail](https://img.icons8.com/?size=2x&id=6BBCqlzE4iKd&format=png)](mailto:bayrak.bedirhan@icloud.com)
